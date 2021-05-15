@@ -1,1 +1,1 @@
-# Projekt_DP
+Szymon Kasiorek, Szymon Kasiorek (Robię projekt sam)
